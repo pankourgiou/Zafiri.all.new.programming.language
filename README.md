@@ -1,0 +1,3 @@
+So, first of all let's make a reality+sanity check--->This is an all new programming language called Ζαφείρι associated with .ζαφ files-->here is the powerful point-->the results that appear appear in the MIT language I made there...
+those are results on the playground..RESULTS...so download the .html and double click it and you have a full working programming language--->your problem starts with lack of rationality that derives from the I know it all attitude but still irrational and there are gaps more or less
+we propose rationality-->Rationality for a better result..those details are a big thing for programming! enjoy!
